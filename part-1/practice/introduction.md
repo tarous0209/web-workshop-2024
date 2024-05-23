@@ -6,4 +6,4 @@
 
 ## 所属組織
 - [team411](https://www.team411.jp)
-- [バレーボール同好会]
+- [バレーボール同好会](https://conjurers.amebaownd.com/)
